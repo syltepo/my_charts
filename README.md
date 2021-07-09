@@ -135,3 +135,36 @@ Annexes
     Matrice organismes/restitutions
 
 
+-----------------
+
+
+
+Etude de faisabilité Toulouse du 250092019
+
+Un historique de DEMETER:
+    Mars 2015: Etude de Modernisation.
+    Juin-Août 2017: Spécifications produit.
+    Automne 2017: Travail sur es specs
+    Juillet 2018: Livraison Lot 2
+    Septembre 2020: MEP à blanc.
+Le bambin à plus de 5 ans et demi !
+
+
+
+______________________
+
+Nathalie Corradi a été chef du bureau CE1B.
+
+
+Dans un mail de 2014 Brigitte demande l'autorisationd à la MOA de diffuser la faq DDR3 rédigée par Toulouse.
+
+ Brigitte Quinnez
+Inspectrice Principale
+SI-2A - DMA
+Cellule Projets de transformation de l'assistance 
+
+____________________________
+
+Le système d'échange Chorus:
+https://aife.economie.gouv.fr/nos-applications/piste/
+
